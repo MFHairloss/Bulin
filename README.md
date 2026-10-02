@@ -2,7 +2,7 @@
 
 Denne siden viser hva som allerede finnes på hytta. **Sjekk listen før du handler**, slik at vi unngår unødvendige dobbeltkjøp.
 
-**Sist oppdatert:** 9. september 2026  
+**Sist oppdatert:** 2. oktober 2026  
 **Siste besøkende:** Marcus
 
 ---
