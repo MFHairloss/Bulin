@@ -3,7 +3,7 @@
 Denne siden viser hva som allerede finnes på hytta. **Sjekk listen før du handler**, slik at vi unngår unødvendige dobbeltkjøp.
 
 **Sist oppdatert:** 9. september 2026  
-**Siste besøkende:** Marcus Superstar
+**Siste besøkende:** Marcus
 
 ---
 
@@ -68,7 +68,7 @@ Denne siden viser hva som allerede finnes på hytta. **Sjekk listen før du hand
 
 ## Kaffe og te
 
-- Kaffe × 2 uåpnede pakker, malt for presskanne
+- Kaffe × 4 uåpnede pakker, malt for presskanne
 - Twinings Forward Fruits × 1 halvfull pakke
 - Kaffefilter × mange
 
@@ -84,7 +84,7 @@ Denne siden viser hva som allerede finnes på hytta. **Sjekk listen før du hand
 
 ### Øl og vin
 
-- Øl × minst 4 fridge packs
+- Øl × 2 fridge packs
 - Alkoholfritt øl × et par bokser
 - Vindunker × ukjent antall
   - Muligens gamle – bør sjekkes
@@ -129,6 +129,12 @@ Denne siden viser hva som allerede finnes på hytta. **Sjekk listen før du hand
 - Tomme gassylindere × 2 stk.
   - Står i kjelleren
   - Må fylles
+
+---
+
+## Vedlikehold og ting som må ordnes
+
+- Presskanne: glasset er knust og må erstattes
 
 ---
 
